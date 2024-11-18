@@ -116,7 +116,8 @@ Commands to get into Cadence:
 
 ![exp5_trans](https://github.com/user-attachments/assets/71464982-7ee4-4949-9ebb-b9c7d4fed4e4)
 
-![WhatsApp Image 2024-10-19 at 09 47 30_2660bfe0](https://github.com/user-attachments/assets/15ccf69c-8088-4366-b5f2-3349b217016d)
+
+![exp5_out](https://github.com/user-attachments/assets/95d43007-f918-489e-a414-caea8258c077)
 
 
 ### Results:
